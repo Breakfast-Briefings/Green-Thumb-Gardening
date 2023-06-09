@@ -3,15 +3,15 @@ Welcome to Green Thumb Gardening, London's premier provider of bespoke landscape
 
 At Green Thumb Gardening, we offer a wide range of services to cater to your specific gardening needs. Some of the common tasks we undertake include:
 
-Garden Design and Planning: Our experienced designers will work closely with you to create a personalized garden design that aligns with your vision. We take into consideration factors such as your lifestyle, aesthetic preferences, and the existing layout of your outdoor space.
+-**Garden Design and Planning:** Our experienced designers will work closely with you to create a personalized garden design that aligns with your vision. We take into consideration factors such as your lifestyle, aesthetic preferences, and the existing layout of your outdoor space.
 
-Planting and Softscaping: We specialize in selecting and planting a variety of flora, from vibrant flowers to lush shrubs and trees. Our team will carefully choose the right plants to thrive in your garden, considering factors such as soil conditions, sunlight exposure, and maintenance requirements.
+-**Planting and Softscaping:** We specialize in selecting and planting a variety of flora, from vibrant flowers to lush shrubs and trees. Our team will carefully choose the right plants to thrive in your garden, considering factors such as soil conditions, sunlight exposure, and maintenance requirements.
 
-Hardscaping and Construction: From patios and pathways to decking and water features, we can transform your garden with stunning hardscaping elements. Our skilled craftsmen use high-quality materials to create durable and visually appealing structures that enhance the overall look of your outdoor space.
+-**Hardscaping and Construction:** From patios and pathways to decking and water features, we can transform your garden with stunning hardscaping elements. Our skilled craftsmen use high-quality materials to create durable and visually appealing structures that enhance the overall look of your outdoor space.
 
-Lawn Care and Maintenance: Our team will ensure your lawn remains healthy and green throughout the year. We offer services such as mowing, fertilizing, weed control, and aeration, tailored to keep your lawn in optimal condition.
+-**Lawn Care and Maintenance:** Our team will ensure your lawn remains healthy and green throughout the year. We offer services such as mowing, fertilizing, weed control, and aeration, tailored to keep your lawn in optimal condition.
 
-Irrigation Systems: We can install efficient irrigation systems that help conserve water while keeping your plants properly hydrated. Our team will design and implement a system that suits your garden's size and requirements, ensuring optimal water distribution.
+-**Irrigation Systems:** We can install efficient irrigation systems that help conserve water while keeping your plants properly hydrated. Our team will design and implement a system that suits your garden's size and requirements, ensuring optimal water distribution.
 
 At Green Thumb Gardening, we understand the importance of flexible payment options for our valued customers. That's why we offer easy payment plans to make your gardening projects more affordable. Whether you prefer monthly installments or a customized payment schedule, our team will work with you to find a solution that suits your budget.
 
