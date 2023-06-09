@@ -1,4 +1,5 @@
 # Green Thumb Gardening
+![Landscaped garden](https://www.bhg.com/thmb/cSYboQxajwsDpZsN2ekyCWGll54=/1920x0/filters:no_upscale():strip_icc()/back-yard-fire-pit-deck-bc1d716b-f8ac9935591e4699828efa7821bb6c17.jpg)
 Welcome to Green Thumb Gardening, London's premier provider of bespoke landscape gardening services for households. Our team of skilled professionals is dedicated to transforming your outdoor space into a stunning oasis that reflects your unique style and preferences. With our meticulous attention to detail and passion for creating beautiful landscapes, we guarantee to exceed your expectations.
 
 At Green Thumb Gardening, we offer a wide range of services to cater to your specific gardening needs. Some of the common tasks we undertake include:
